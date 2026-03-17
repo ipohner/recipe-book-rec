@@ -8,10 +8,14 @@
 - **Olive oil** or **salted butter** for frying
 - **500 ml** vegetable broth
 - **chili powder** and **salt** to taste
+- **Optional** (garnish): 2 slices of bread for croutons
  
 ## Instructions
- 
-1. **Prepare the vegetables**
+
+1. **Prepare the croutons** (optional)   
+    - If you wish to serve the soup with croutons, dice the bread slices, heat some salted butter in a pan, and fry the bread cubes until brown and crispy. Set aside to cool.
+      
+2. **Prepare the vegetables**
     - Wash the peppers, remove the seeds and cut them into chunks.
     - Peel the garlic and mince.
     - Dice the tomato.
@@ -28,4 +32,4 @@
     - Season to taste with chili powder and salt.
  
 6. **Serve and enjoy!**
-    - Ladle the soup into bowls and serve while it's hot!
+    - Ladle the soup into bowls, add the croutons (if desired), and serve while it's hot!
