@@ -4,7 +4,7 @@
  
 - 4-6 red **bell peppers/sweet peppers**
 - 3 large **tomatoes**
-- 6-8 **garlic cloves**
+- 1-8 **garlic cloves** (adjust amount to taste)
 - **Olive oil** or **salted butter** for frying
 - **500 ml** vegetable broth
 - **chili powder** and **salt** to taste
